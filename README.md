@@ -15,3 +15,11 @@ learning in tedious
 once you hit that red line
 
 don't let your say fall, find your path
+
+### Don't Jerry Pick
+
+True Knowledge is about open mind
+
+What you think is not important to learn today
+
+Might be your own undoing tomorrow.
