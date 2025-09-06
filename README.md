@@ -23,3 +23,11 @@ True Knowledge is about open mind
 What you think is not important to learn today
 
 Might be your own undoing tomorrow.
+
+#### Focus makes the Journey Swift
+
+Most things mastered is through focus
+
+You can't get far with your attention divided
+
+You can't learn much with distraction
